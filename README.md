@@ -1,10 +1,25 @@
-# Halo! Aku Schadenfreude, pelajar yang baru mulai nyebur ke dunia coding dan teknologi.
-Masih awal-awal banget, tapi aku mulai jatuh cinta sama cara kerja logika, struktur kode, dan potensi besar yang ada di dunia digital ini. Sekarang aku lagi coba kenalan sama berbagai tools—dan GitHub jadi salah satu pengalaman pertamaku buat benar-benar ngerasain gimana cara developer beneran bekerja.
+𝘴𝘤𝘩𝘢𝘥𝘦𝘯𝘧𝘳𝘦𝘶𝘥𝘦
+/ˈʃɑːdənˌfrɔɪdə/
+a word sharp on the tongue,
+a smile in the shadow of someone else's fall.
 
-Sebelumnya, aku biasa pakai platform lain buat belajar, tapi makin ke sini, aku sadar pentingnya belajar dari proses yang sesungguhnya—bareng komunitas dan lewat platform profesional seperti GitHub.
+not because we are cruel—
+but because we are honest.
+because even in the quiet,
+our hearts twitch when pride slips,
+when masks crack,
+when the untouchable stumbles.
 
-Buatku, coding bukan soal jago dari awal, tapi soal belajar, nyoba, gagal, lalu coba lagi.
-Masih banyak yang belum aku tahu, tapi aku suka tantangannya.
-Dan sekarang, aku lagi berproses buat jadi seseorang yang bisa nyiptain solusi digital dari ide sederhana.
+i carry the name not to glorify pain,
+but to understand it.
+to hold the mirror to the soft monsters we all hide—
+jealousy, bitterness,
+a grin we’re too ashamed to admit.
 
-Masih baru, tapi selalu penasaran. Masih belajar, tapi gak akan berhenti.
+this name is not celebration.
+it’s confession.
+a reminder that growth blooms
+even in the darkest corner of emotion.
+and sometimes,
+we learn most
+from the cracks we don't show in the daylight.
